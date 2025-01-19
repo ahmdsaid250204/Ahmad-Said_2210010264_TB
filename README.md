@@ -1,2 +1,0 @@
-# Ahmad-Said_2210010264_TB
-UAS PBO2
